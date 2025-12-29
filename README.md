@@ -79,7 +79,7 @@ We may update this Privacy Policy from time to time. We will notify users of any
 
 If you have questions about this Privacy Policy, please contact us at:
 
-**Email:** [your-email@example.com]
+**Email:** [peopleofml@gmail.com]
 
 ---
 
